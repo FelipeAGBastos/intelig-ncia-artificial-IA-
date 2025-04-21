@@ -1,2 +1,2 @@
-# intelig-ncia-artificial-IA-
+# inteligência-artificial-IA-
 inteligência artificial (IA)
